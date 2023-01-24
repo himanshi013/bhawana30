@@ -18,7 +18,7 @@
 - 💞️ I’m looking to collaborate on web developing
 - 📫 How to reach me - you can msg me on insta- <a href ="https://www.instagram.com/bhawana.khurana/">@bhawana.khurana</a> , Email: bhawanakhurana15@gmail.com
 
-[![@bhawanakhurana's Holopin board](https://holopin.me/bhawanakhurana)](https://holopin.io/@bhawanakhurana)
+[![@bhawanakhurana's Holopin board](https://www.holopin.io/@himanshi013)](https://www.holopin.io/@himanshi013)
 
 <!-- Stats of my activity on Github -->
 
